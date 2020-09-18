@@ -8,4 +8,4 @@
 ![Capture3](https://user-images.githubusercontent.com/62477193/92608214-5d81a000-f2b5-11ea-8fa9-5aaeca71bc11.PNG)
 ## Follow me:
 ### https://www.instagram.com/klevis_r1
-### https://www.youtube.com/channel/UCMlZumdBQ7g9IUAD3v9mx8g
+### https://www.youtube.com/c/kvisiofficial/
